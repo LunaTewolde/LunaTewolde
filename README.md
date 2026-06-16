@@ -1,4 +1,4 @@
--# Luna Tewolde
+# Luna Tewolde
 
 Statistics & Integrative Biology @ UC Berkeley (May 2027)
 
